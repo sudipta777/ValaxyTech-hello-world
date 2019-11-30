@@ -1,2 +1,2 @@
-<h1> Hello, Welcome to Valaxy  new ------------ITechnologies newwwwwwwwww!!! </h1>
+<h1> Hello, Welcome to Valaxy  new NEWW------------ITechnologies newwwwwwwwww!!! </h1>
 
